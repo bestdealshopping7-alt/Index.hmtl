@@ -1,0 +1,2 @@
+# Index.hmtl
+Affiliate marketing 
